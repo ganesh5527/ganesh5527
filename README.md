@@ -1,4 +1,4 @@
-### Hi there 👋
+# Ganesh Naidu
 
 
 ## 🌐 Socials:
